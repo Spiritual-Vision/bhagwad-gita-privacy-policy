@@ -1,1 +1,0 @@
-# bhagwad-gita-privacy-policy
